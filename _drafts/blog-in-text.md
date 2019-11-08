@@ -1,0 +1,1 @@
+You should blog in text to future proof yourselve. Platforms come and go. Self hosted blogging platforms need maintenance and costly updates. Paid may not be best if you want to keep paying for something you don't use.
